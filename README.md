@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Z3eepoo
 - 👀 I’m interested in Devloppements FiveM
-- 📫 Discord:╾━╤デ╦︻#5982
+- 📫 Discord:𝓩𝓮𝓮𝓹𝓸.𝓮𝔁𝓮#0001
 
 <!---
 Z3eepoo/Z3eepoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
